@@ -1,5 +1,5 @@
 > [!NOTE]
-> I have DID & Paranoid Schizophrenia! Please be considerate, as such disorders heavily impact my daily life
+> I have DID & I am a Psychotic/Paranoid Schizophrenic. Please be considerate, as such disorders heavily impact my daily life
 
 ******
 <p align="center">  <img src="https://files.catbox.moe/ql14j1.gif" width="600"> 
