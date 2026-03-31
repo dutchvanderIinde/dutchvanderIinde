@@ -9,4 +9,4 @@
 
 ******
 <details align="center">
-<summary> ⎯࿐༘ㅤ ${\textsf{\color{#1a85d6}click 4 more}}$ 𓏵 </summary> no dni just be respectful! <br> -18 is ok but i will avoid involing you in my daily life, i only want to befriend my peers <br> i answer sp on twitter @dustbunny_9, 18+ pref here! <br> </details> <p align="center"> </>
+<summary> ⎯࿐༘ㅤ ${\textsf{\color{#1a85d6}click 4 more}}$ 𓏵 </summary> no dni just be respectful! <br> -18 is ok but i will avoid involing you in my daily life, i only want to befriend my peers <br> PLS be direct with me if i discomfort you. I play and joke around a lot!!! <br> </details> <p align="center"> </>
