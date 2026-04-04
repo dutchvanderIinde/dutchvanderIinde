@@ -1,6 +1,8 @@
 > [!NOTE]
 > I have DID & I am a Psychotic/Paranoid Schizophrenic. Please be considerate, as such disorders heavily impact my daily life
 
+𑇓ུ  𓏵 ${\textsf{\color{#1a85d6}front}}$ [status](https://rentry.co/99baconcola)  <
+
 ******
 <p align="center">  <img src="https://files.catbox.moe/ql14j1.gif" width="600"> 
 <p align="center"> <img src="https://files.catbox.moe/bsfup0.png" width="700">
